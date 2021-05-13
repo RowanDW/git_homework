@@ -3,3 +3,7 @@ Takeaways from the first few sessions:
     important starting immediately.
   2) Everybody seems really nice and I feel like I can ask for help when
      I need it.
+
+Two new strategies I am committing to trying for Mod 0:
+  1) Reviewing previous session as prep for the upcoming sessions.
+  2) Working on Mod 1 pre-work for at least an hour every day.
