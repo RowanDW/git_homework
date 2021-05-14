@@ -12,3 +12,7 @@ Shoutout:
   1) I want to give Wil Huffman a shoutout for volunteering my idea
     in the session 1 calendar breakout exercise and giving me credit.
     That definitely made me feel supported!
+
+New thoughts:
+  - I have met some really nice people
+  
